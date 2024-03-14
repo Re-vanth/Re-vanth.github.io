@@ -34,3 +34,22 @@ Feel free to reach out via LinkedIn for any questions, opportunities, or collabo
 - **Location:** Hyderabad, Telangana, India
 - **LinkedIn:** [Revanth](https://www.linkedin.com/in/revanth-maddikunta/)
 
+
+
+
+
+
+
+
+
+
+
+
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<sub><sup> # Emojis are awesome! :sunglasses: </sup></sub>
