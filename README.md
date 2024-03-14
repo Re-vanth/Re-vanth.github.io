@@ -27,9 +27,10 @@ With over four years of comprehensive experience in DevOps engineering, focusing
 - **Databases:** MySQL, PostgreSQL, Cassandra
 
 
-- **Location:** Hyderabad, Telangana, India
-- **LinkedIn:** [Revanth](https://www.linkedin.com/in/revanth-maddikunta/)
+
 
 Feel free to reach out via LinkedIn for any questions, opportunities, or collaborations!
 
+- **Location:** Hyderabad, Telangana, India
+- **LinkedIn:** [Revanth](https://www.linkedin.com/in/revanth-maddikunta/)
 
